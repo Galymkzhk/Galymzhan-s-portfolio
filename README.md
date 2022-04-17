@@ -1,1 +1,0 @@
-# Galymzhan-s-portfolio
